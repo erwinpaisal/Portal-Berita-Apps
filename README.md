@@ -39,6 +39,5 @@ Berikut Tampilan Aplikasi ini :
 ![Screenshot_7](https://user-images.githubusercontent.com/63776459/89097455-3d82d500-d409-11ea-883f-d6b488c8a7c5.png)
 
 TERIMA KASIH!!
-Jangan Lupa Follow IG Saya : 
-https://www.instagram.com/erwinpaisal.id
-https://www.instagram.com/literasikoding
+Untuk Inspirasi lain silahkan klik :
+https://biolinky.co/erwinpaisal
